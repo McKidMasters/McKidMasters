@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @McKidMasters
+- 👀 I’m interested in anything proraming related and cybersecurity.
+- 🌱 I’m currently learning. 
+- 💞️ I’m looking to collaborate on anything really, I am new to all of this.
+- 📫 How to reach me: McKidMasters@outlook.com
